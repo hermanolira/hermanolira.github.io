@@ -1,3 +1,6 @@
+> Any fool can write code that a computer can understand. Good programmers write code that humans can understand.<br>
+~**Martin Fowler**
+
 > A educação é o que resta quando a pessoa esquece tudo o que aprendeu na escola<br>
 ~**Albert Einstein**
 
