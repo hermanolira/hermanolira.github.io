@@ -1,3 +1,6 @@
+> I’m going to have to science the shit out of this. <br>
+~**The Martian**
+
 > Any fool can write code that a computer can understand. Good programmers write code that humans can understand.<br>
 ~**Martin Fowler**
 
