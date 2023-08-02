@@ -1,3 +1,6 @@
+> Don’t be perfect, just keep getting better.
+~**Frank Peretti**
+
 > Antes de ser líder, você precisa ser o colaborador que todo líder gostaria de ter.
 ~@seja.lider
 
