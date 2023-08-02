@@ -1,3 +1,6 @@
+> Antes de ser líder, você precisa ser o colaborador que todo líder gostaria de ter.
+~@seja.lider
+
 > Por mais **difícil** que a **vida** pareça, sempre **existe** alguma coisa que você pode **fazer** e ter **sucesso**.
 ~**Stephen Hawking**
 
