@@ -1,3 +1,6 @@
+> Por mais **difícil** que a **vida** pareça, sempre **existe** alguma coisa que você pode **fazer** e ter **sucesso**.
+~**Stephen Hawking**
+
 > Se você **muda** o modo como você **olha** as **coisas**, as **coisas** que você olha **mudam**.
 ~**Wayne Dyer**
 
