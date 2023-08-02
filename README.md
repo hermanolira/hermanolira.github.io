@@ -1,3 +1,6 @@
+> Se você **muda** o modo como você **olha** as **coisas**, as **coisas** que você olha **mudam**.
+~**Wayne Dyer**
+
 > **Disciplina** é a ponte entre **objetivos** e **realizações**.
 ~**Jim Rohn**
 
