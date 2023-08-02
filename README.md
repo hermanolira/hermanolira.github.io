@@ -1,3 +1,6 @@
+> **Disciplina** é a ponte entre **objetivos** e **realizações**.
+~**Jim Rohn**
+
 > I’m going to have to science the shit out of this. <br>
 ~**The Martian**
 
